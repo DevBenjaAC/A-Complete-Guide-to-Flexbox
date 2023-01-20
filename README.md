@@ -1,6 +1,3 @@
-# Eddie Elorza😎
-
-# Oscar Guerrero😎
 
 # Benjamin Alvarado😎
 
